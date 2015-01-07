@@ -8,3 +8,4 @@
 * Fela Kuti and the Patchy Beards
 * Fela Kuti and the Gibsonesque Dystopias
 * Fela Kuti and the Steel Fabricators
+* Berlusconi's Detachable Penis
