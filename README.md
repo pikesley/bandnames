@@ -9,3 +9,4 @@
 * Fela Kuti and the Gibsonesque Dystopias
 * Fela Kuti and the Steel Fabricators
 * Berlusconi's Detachable Penis
+* Lockjaw and Night Vision
