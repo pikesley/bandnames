@@ -12,3 +12,4 @@
 * Lockjaw and Night Vision
 * Ginger Influx
 * Ginger Reflux
+* Pulse Dot and Expanding Circle
