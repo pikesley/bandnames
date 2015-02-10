@@ -13,3 +13,4 @@
 * Ginger Influx
 * Ginger Reflux
 * Pulse Dot and Expanding Circle
+* Dominique Strauss-Kahn's Quarterly Sex Party
