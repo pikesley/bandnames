@@ -16,3 +16,4 @@
 * Dominique Strauss-Kahn's Quarterly Sex Party
 * Helicopters On The Underground
 * Ellen's Perfume Accident
+* Cloaca Poop Machine
