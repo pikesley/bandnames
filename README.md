@@ -18,3 +18,4 @@
 * Ellen's Perfume Accident
 * Cloaca Poop Machine
 * Skywhales of the Left
+* Peterson Fireplace
