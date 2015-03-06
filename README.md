@@ -20,3 +20,4 @@
 * Skywhales of the Left
 * Peterson Fireplace
 * Owen Boswarva's Open Data Flowchart
+* Accidental Swastika
