@@ -31,3 +31,4 @@
 * Wednesday Boy
 * Moustachioed Twat
 * Attachable Pocket
+* Duped by Explosions
