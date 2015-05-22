@@ -32,3 +32,4 @@
 * Moustachioed Twat
 * Attachable Pocket
 * Duped by Explosions
+* Nut Rage Release
