@@ -33,3 +33,4 @@
 * Attachable Pocket
 * Duped by Explosions
 * Nut Rage Release
+* Spacious Gusset Design
