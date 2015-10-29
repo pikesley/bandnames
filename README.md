@@ -25,3 +25,23 @@
 * Business Support Have Octopi
 * Biscuit Injury Threat Evaluation
 * Jeremy Clarkson Contract Renewal Live-Blog
+* Slow Loris and the Warriors
+* Rubbish Sandwich Sadness
+* Hay Fever and Sinus Problems
+* Wednesday Boy
+* Moustachioed Twat
+* Attachable Pocket
+* Duped by Explosions
+* Nut Rage Release
+* Spacious Gusset Design
+* Baseline Cohort and the Future Researchers
+* Japanese Sneaker Scene
+* Statues Being Intimate
+* National Barrier Asset
+* Spiders Can Swim
+* The Indolent Gibbons
+* Boris Johnson's Trafalgar Toilet Charge
+* Kurt Russell's Moustache Game
+* Scorched Wort Shitshow
+* Vibrating Scrum Environment
+* Perpetual Tourist Flinging Machine
