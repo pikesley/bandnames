@@ -44,3 +44,4 @@
 * Kurt Russell's Moustache Game
 * Scorched Wort Shitshow
 * Vibrating Scrum Environment
+* Previous Bear Encounters
