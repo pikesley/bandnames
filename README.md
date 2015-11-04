@@ -45,3 +45,4 @@
 * Scorched Wort Shitshow
 * Vibrating Scrum Environment
 * Previous Bear Encounters
+* SIM card anxiety
