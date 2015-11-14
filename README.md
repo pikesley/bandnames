@@ -47,3 +47,4 @@
 * Previous Bear Encounters
 * SIM card anxiety
 * Radioactive Fox King
+* Perpetual Tourist Flinging Machine
