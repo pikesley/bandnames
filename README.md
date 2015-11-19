@@ -48,3 +48,4 @@
 * SIM card anxiety
 * Radioactive Fox King
 * Perpetual Tourist Flinging Machine
+* Homoerotic Antibiotics
