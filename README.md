@@ -1,4 +1,6 @@
 * Gordon Brown's Bigoted Woman 
+* Nocturnal Smells Anger
+* Tiny Pothole Anger
 * Huge Pothole Anger
 * Neolithic Bagel
 * Sam Smith and the Privacy People
