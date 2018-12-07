@@ -69,3 +69,4 @@
 * Malky Mackay and the Racist Text Messages
 * Midnight Faxes and Intimidation
 * Incognito Buttlocks 
+* The Exquisite Pickles
