@@ -71,6 +71,6 @@
 * Incognito Buttlocks 
 * The Exquisite Pickles
 * This branch is even with pikesley:master
-* Nomenclature of horse derivatives
-* Indolent cannibals
-* This leads to shuttle explosions
+* Nomenclature of Horse Derivatives
+* Indolent Cannibals
+* This Leads to Shuttle Explosions
