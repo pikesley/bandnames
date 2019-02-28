@@ -74,3 +74,5 @@
 * Nomenclature of Horse Derivatives
 * Indolent Cannibals
 * This Leads to Shuttle Explosions
+* Prehensile Elephant Wang
+* Hypervolume Explorers
