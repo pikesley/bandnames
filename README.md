@@ -1,3 +1,4 @@
+* Alex Leon and the Diversity Extras
 * Porp Betamax
 * Pre-Teen Flaneurs
 * Tory Brexit Chaos
@@ -9,7 +10,7 @@
 * TimBL’s Leftover Shortbread
 * The Teapots In The Distance
 * Celebrity Threesome Injunction
-* Gordon Brown's Bigoted Woman 
+* Gordon Brown's Bigoted Woman
 * Nocturnal Smells Anger
 * Tiny Pothole Anger
 * Huge Pothole Anger
@@ -69,7 +70,7 @@
 * Procedurally-Generated Apocalypse
 * Malky Mackay and the Racist Text Messages
 * Midnight Faxes and Intimidation
-* Incognito Buttlocks 
+* Incognito Buttlocks
 * The Exquisite Pickles
 * This branch is even with pikesley:master
 * Nomenclature of Horse Derivatives
