@@ -69,6 +69,7 @@
 * Rubbish Sandwich Sadness
 * Sam Smith and the Privacy People
 * Scorched Wort Shitshow
+* The Sharepoint Tourettes
 * SIM card anxiety
 * Skywhales of the Left
 * Slow Loris and the Warriors
