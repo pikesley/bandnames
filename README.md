@@ -73,6 +73,7 @@
 * The Sharepoint Tourettes
 * SIM card anxiety
 * Skywhales of the Left
+* The Slam-Door Emus
 * Slow Loris and the Warriors
 * Spacious Gusset Design
 * Spiders Can Swim
